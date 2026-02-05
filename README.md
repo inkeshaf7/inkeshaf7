@@ -24,4 +24,4 @@
 
 ## 📫 Contact Me
 - LinkedIn:https://www.linkedin.com/in/inkeshaf-khan-a21279202   
-- Email: inkeshafkhan@37106@gmail.com
+- Email: inkeshafkhan37106@gmail.com
